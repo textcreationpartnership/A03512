@@ -36,7 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-THE ILIADS OF HOMER Prince of Poets. Neuer before in any languag truely translated. With a Com̄ent v
+
 1. TO THE HIGH BORNE PRINCE OF MEN, HENRIE THRICE Royall inheritor to the vnited kingdoms of Great BRITTAINE, &c.
 
 1. AN ANAGRAM OF THE NAME OF OVR DRAD PRINCE, MY MOST Gracious and sacred Moecaenas; HENRYE PRINCE OF VVALES OVR SVNN, HEYR, PEACE, LIFE.
